@@ -1,0 +1,3 @@
+- 👋 Hi, I’m J-Spark1
+- 👀 I’m interested in a lot of different things
+- 🌱 I’m currently learning something new everyday
